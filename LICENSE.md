@@ -1,4 +1,4 @@
-# 
+# Mis à jour Fences extensions pour Mac OS | Top Fences extensions pour PC Windows. Avec limitation de débit et nettoyage de fichiers inutiles — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
